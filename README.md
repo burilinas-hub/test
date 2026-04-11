@@ -1,2 +1,1 @@
-1. Создайте структуру проекта пакетом src 
-2. 
+please donate bc1qnlquk6aankz57fp4terhrt5t9tzxpuczym3a6m
